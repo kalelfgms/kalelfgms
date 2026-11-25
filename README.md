@@ -1,4 +1,4 @@
-### Hi, I'm Kahleil 👋
+### Hi, I'm Kalel
 
 I'm a **Computer Engineering student at Institut Teknologi Sepuluh Nopember (ITS)** and an **aspiring Game Developer**.
 
